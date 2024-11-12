@@ -1,7 +1,7 @@
 # 👋 Hi, I’m Faith
 
 # 💫 About Me:
-🔭 I’m currently working on a Carbon Footprint Calculator.<br>👯 I’m looking to collaborate on projects that focus on climate action.<br>🤝 I’m looking for help with identifying projects that foster sustainable development.<br>🌱 I’m currently reading 'It Didn't Start With You' by Mark Wolynn.<br>💬 Ask me about Kenya.<br>⚡ Fun fact - I love board games. I am very competitive and great at strategy-focused games.
+🔭 I’m currently analysing the renewable energy adoption trends in Africa.<br>👯 I’m looking to collaborate on projects that focus on climate action.<br>🤝 I’m looking for help with identifying projects that foster sustainable development.<br>🌱 I’m currently reading 'Unfu*k Yourself' by Gary John Bishop.<br>💬 Ask me about Kenya.<br>⚡ Fun fact - I love board games. I am very competitive and great at strategy-focused games.
 
 
 ## 🌐 Socials:
